@@ -63,7 +63,7 @@ Please feel free to contact me if you have any questions, ideas or even if you j
 - [Facebook](https://web.facebook.com/marvinngesa)
 - [LinkedIn](https://www.linkedin.com/in/engngesamarvin) 
 
-Found this project useful ❤️? Support by clicking the ⭐️ button on the upper right of this page. ✌️
+Found this useful ❤️? Support by clicking the ⭐️ button on the upper right of this page. ✌️
 
 References
 ----------
